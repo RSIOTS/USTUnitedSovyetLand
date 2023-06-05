@@ -1,1 +1,1 @@
-inwant for a united communist world
+Red Sun Is On The Sky
